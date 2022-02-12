@@ -1,2 +1,2 @@
-# mrava87.github.io
+# izzatum.github.io
 Personal website
